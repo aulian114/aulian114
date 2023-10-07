@@ -8,6 +8,8 @@ Saya mempelajari dasar manajemen proyek [sertifikat_course_570_3188975_130923211
 
 Saya juga memiliki gelar  Associate Data Science dari pelatihan yang diadakan oleh kominfo kota Makassar.<br>
 
+Saat ini saya juga mempelajari tengah sedikit terkait pemrograman mobile dan pemrograman website. <br>
+
 Salam kenal yaa.
 
 <p align="left">
